@@ -1,4 +1,4 @@
-# Logotherapy - meaning-centered psychotherapy
+# Logotherapy - The meaning-centered Psychotherapy
 
 Logotherapy was developed by neurologist and psychiatrist [Viktor Frankl](https://en.wikipedia.org/wiki/Viktor_Frankl) and it is founded upon the belief that striving to find meaning in life is the primary, most powerful motivating and driving force in Humans. A short introduction to this system is given in Frankl's most famous book, [Man's Search for Meaning](https://www.amazon.com/Mans-Search-Meaning-Viktor-Frankl-ebook/dp/B009U9S6FI), in which he outlines how his theories helped him to survive his Holocaust experience and how that experience further developed and reinforced his theories.
 
