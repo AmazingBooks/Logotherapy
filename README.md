@@ -63,7 +63,9 @@ That is why a logotherapist is the least tempted of all psychotherapists to impo
 Thus far the meaning of life always changes, but that it never ceases to be. According to logotherapy, we can discover this meaning in life in three different ways: 
 
 > (1) by creating a work or doing a deed; 
+
 > (2) by experiencing something or encountering someone — such as goodness, truth and beauty—by experiencing nature;
+
 > (3) by the attitude we take toward unavoidable suffering. 
  
 #### THE MEANING OF LOVE
