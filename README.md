@@ -120,10 +120,18 @@ By the same token, every human being has the freedom to change at any instant. O
 How can we dare to predict the behavior of man? We may predict the movements of a machine, of an automaton; more than this, we may even try to predict the mechanisms or “dynamisms” of the human psyche as well. But man is more than psyche. **Freedom is responsibleness**. In fact, freedom is in danger of degenerating into mere arbitrariness unless it is lived in terms of responsibleness. 
 
 
+#### THE PSYCHIATRIC CREDO and PSYCHIATRY REHUMANIZED
 
+_THE PSYCHIATRIC CREDO_ refers to the state of an incurably psychotic individual who might had lose his usefulness but yet retain the dignity of a human being. Without it I should not think it worthwhile to be a psychiatrist. For whose sake? Just for the sake of a damaged brain machine which cannot be repaired? 
 
+For too long a time—for half a century, in fact—psychiatry tried to interpret the human mind merely as a mechanism, and consequently the therapy of mental disease merely in terms of a technique. 
+A doctor, however, who would still interpret his own role mainly as that of a technician would confess that he sees in his patient nothing more than a machine, instead of seeing the human being behind the disease!
+A human being is not one thing among others; things determine each other, but man is ultimately self-determining. 
 
+> _**What a man becomes, is within the limits of endowment and environment that he has made out of himself.**_ 
 
+Man has both potentialities within himself(good and bad); which one is actualized depends on decisions but not on conditions.
+Our generation is realistic, for we have come to know man as he really is. After all, man is that being who invented the gas chambers of Auschwitz; however, he is also that being who entered those gas chambers upright, with the Lord’s Prayer or the Shema Yisrael on his lips.
 
 
 
