@@ -134,4 +134,49 @@ Man has both potentialities within himself(good and bad); which one is actualize
 Our generation is realistic, for we have come to know man as he really is. After all, man is that being who invented the gas chambers of Auschwitz; however, he is also that being who entered those gas chambers upright, with the Lord’s Prayer or the Shema Yisrael on his lips.
 
 
+#### The Case for a Tragic Optimism
+
+LET US FIRST ask ourselves what should be understood by “a tragic optimism.” 
+The meaning of TRAGIC OPTIMISM is that a man remains optimistic in spite of any “tragic triad”,  a triad which consists of those aspects of human existence which may be circumscribed by:
+>   - (1) pain;
+
+>   - (2) guilt;
+
+>   - (3) death. 
+
+__How is it possible to say yes to life in spite of all that?__ 
+Can life retain its potential meaning in spite of its tragic aspects? After all, “saying yes to life in spite of everything”, presupposes that life is potentially meaningful under any conditions, even those which are most miserable. 
+The idea is to turn life’s negative aspects into something _positive_ or _constructive_. In other words, what matters is to make the best of any given situation. **“The best”** of a given tragic situation is:  
+
+>  (1) turning suffering into a human achievement and accomplishment; 
+
+>  (2) deriving from guilt the opportunity to change oneself for the better; 
+
+>  (3) deriving from life’s transitoriness an incentive to take responsible actions;
+
+It must be kept in mind, however, that optimism is not anything to be commanded or ordered. One cannot even force oneself to be optimistic, against all odds, against all hope. And what is true for hope is also true for the other two components of the triad that faith and love cannot be commanded or ordered either.
+
+To the European, it is a characteristic of the American culture that, again and again, one is commanded and ordered to “be happy.” But happiness cannot be pursued; it must ensue. One must have a reason to “be happy.” Once the reason is found, however, one becomes happy automatically. Thus Human being is not one in pursuit of happiness but rather in search of a reason to become happy.
+
+If you want anyone to laugh you have to provide him with a reason, e.g., you have to tell him a joke. In no way is it possible to evoke real laughter by urging him, or having him urge himself, to laugh. Doing so would be the same as urging people posed in front of a camera to say “cheese,” only to find that in the finished photographs their faces are frozen in artificial smiles. Once an individual’s search for a meaning is successful, it not only renders him happy but also gives him the capability to cope with suffering. 
+
+I think of those youngsters who, on a worldwide scale, refer to themselves as the “no future” generation. To be sure, it is not just a cigarette to which they resort; it is drugs. In fact, the drug scene is one aspect of a more general mass phenomenon, namely the feeling of meaninglessness resulting from a frustration of our existential needs which in turn has become a universal phenomenon in our industrial societies. Today it is not only logotherapists who claim that the feeling of meaninglessness plays an ever increasing role in the etiology of neurosis. 
+
+As to the causation of the feeling of meaninglessness, one may say, albeit in an oversimplifying vein, that people have enough to live by but nothing to live for; they have the means but no meaning. To be sure, some do not even have the means. In particular, I think of the mass of people who are today unemployed and which they are prone to a specific type of depression **Unemployment Neurosis**. 
+
+**What is Unemployment Neurosis?** 
+  - Is a type of neurosis which originates as a result of a twofold erroneous identification: (1)being jobless equated with being useless, and (2) being useless equated with having a meaningless life.
+  -  Main trigger for this type of neurosis is triggered by an individual’s socioeconomic situation. 
+
+Consequently, in this caseses patients should either volunteer in youth organizations, adult education, public libraries or absord themselves in meanigful self study activities.  As soon as they fill their abundant free time with some sort of unpaid but meaningful activity—their depression disappeare even if their economic situation does not change and their hunger is the same. The truth is that man does not live by welfare alone.
+
+Just consider the mass neurotic syndrome so pervasive in the young generation: there is ample empirical evidence that the three facets of this syndrome—depression: 
+   1. Aggression
+   2. Addiction — are due to what is called in logotherapy “the existential vacuum,” 
+   3. Feeling of Emptiness and Meaninglessness.
+
+Doesn’t the final meaning of life, too, reveal itself, if at all, only at its end, on the verge of death? And doesn’t this final meaning, too, depend on whether or not the potential meaning of each single situation has been actualized to the best of the respective individual’s knowledge and belief?
+The fact remains that meaning, and its perception, as seen from the logotherapeutic angle, is completely down to earth rather than afloat in the air or resident in an ivory tower. Logotherapy conceives of conscience as a prompter which, if need be, indicates the direction in which we have to move in a given life situation. 
+
+
 
