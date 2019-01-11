@@ -204,13 +204,13 @@ More specifically, this usefulness is usually defined in terms of functioning fo
 
 Decent people form a minority. More than that, they always will remain a minority. Thus it is a very challenge to join the minority. For the world is in a bad state, but everything will become still worse unless each of us does his best.
 
-> So, let us be alert—alert in a twofold sense:
+**So, let us be alert—alert in a twofold sense:**
 
-> _Since Auschwitz we know what man is capable of.
+> _Since Auschwitz we know what man is capable of._
 
-> And since Hiroshima we know what is at stake.
+> _And since Hiroshima we know what is at stake._
 
-> THE END
+_THE END_
 
 
 
