@@ -176,7 +176,51 @@ Just consider the mass neurotic syndrome so pervasive in the young generation: t
    3. Feeling of Emptiness and Meaninglessness.
 
 Doesn’t the final meaning of life, too, reveal itself, if at all, only at its end, on the verge of death? And doesn’t this final meaning, too, depend on whether or not the potential meaning of each single situation has been actualized to the best of the respective individual’s knowledge and belief?
+
 The fact remains that meaning, and its perception, as seen from the logotherapeutic angle, is completely down to earth rather than afloat in the air or resident in an ivory tower. Logotherapy conceives of conscience as a prompter which, if need be, indicates the direction in which we have to move in a given life situation. 
+
+#### How does a man can findin his meaning in life? 
+> All we can do is study the lives of people who seem to have found their answers to the questions of what ultimately life is about.
+
+There are three main avenues on which one can fing a meaning in life: 
+
+> (1) The first is by creating a work or by doing a deed. 
+
+> (2) The second is by experiencing something; in other words, meaning can be found not only in work but also in love. 
+
+> (3) The third avenue to meaning in life: even the helpless victim of a hopeless situation, facing a fate he cannot change, may rise above himself, may grow beyond himself, and by doing do he changes himself, by turning a personal tragedy into a triumph. One cannot change a situation that causes his suffering but he can ultiamtely choose his attitude.
+
+> _Live as if you were living for the second time and had acted as wrongly the first time as you are about to act now_.
+
+In fact, the opportunities to act properly, the potentialities to fulfill a meaning, are affected by the irreversibility of our lives.
+For as soon as we have used an opportunity and have actualized a potential meaning, we have done so once and for all. We have rescued it into the past wherein it has been safely delivered and deposited. In the past, nothing is irretrievably lost, but rather, on the contrary, everything is irrevocably stored and treasured. 
+
+_To be sure, people tend to see only the stubble fields of transitoriness but overlook and forget the full granaries of the past into which they have brought the harvest of their lives: the deeds done, the loves loved, and the sufferings they have gone through with courage and dignity._
+
+From this one may see that there is no reason to pity old people. Instead, young people should envy them. It is true that the old have no opportunities, no possibilities in the future. But they have more than that. Instead of possibilities in the future, they have realities in the past—the potentialities they have actualized, the meanings they have fulfilled, the values they have realized—and nothing and nobody can ever remove these assets from the past.
+
+Just as life remains potentially meaningful under any conditions, even those which are most miserable, so too does the value of each and every person stay with him or her, and it does so because it is based on the values that he or she has realized in the past, and is not contingent on the usefulness that he or she may or may not retain in the present.
+More specifically, this usefulness is usually defined in terms of functioning for the benefit of society. But today’s society is characterized by achievement orientation, and consequently it adores people who are successful and happy and, in particular, it adores the young. It virtually ignores the value of all those who are otherwise, and in so doing blurs the decisive difference between being valuable in the sense of dignity and being valuable in the sense of usefulness. If one is not cognizant of this difference and holds that an individual’s value stems only from his present 
+
+Decent people form a minority. More than that, they always will remain a minority. Thus it is a very challenge to join the minority. For the world is in a bad state, but everything will become still worse unless each of us does his best.
+
+> So, let us be alert—alert in a twofold sense:
+
+> _Since Auschwitz we know what man is capable of.
+
+> And since Hiroshima we know what is at stake.
+
+> THE END
+
+
+
+
+
+
+
+
+
+
 
 
 
