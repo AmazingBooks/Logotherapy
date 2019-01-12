@@ -210,7 +210,7 @@ Decent people form a minority. More than that, they always will remain a minorit
 
 > _And since Hiroshima we know what is at stake._
 
--------------------------------| THE END |-------------------------------
+-----------------------------------------| THE END |-----------------------------------------
 
 
 
